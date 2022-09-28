@@ -1,0 +1,2 @@
+# SnareAndKick
+HAVE FUN PLAYING WITH SOUNDS.
